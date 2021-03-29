@@ -4,7 +4,7 @@
 
 ### Video Clip
 
-- [https://youtu.be/JXZgZYYRIi4](https://youtu.be/JXZgZYYRIi4)
+- [https://youtu.be/CmOeeDw1sSs](https://youtu.be/CmOeeDw1sSs)
 
 ### Technologies / Tools
 
